@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @abeseptics
+- 👀 I'm interested in ... serving my septic system customers
+- 🚽 I'm currently learning ... how to write code for my septic system software
+- 🧠 I'm looking to collaborate on ... my septic system softward
+- 📬 How to reach me ... https://www.thesepticsystemexperts.com
